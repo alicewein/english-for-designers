@@ -3,10 +3,12 @@
   
   1.  
 
-Our work is deeply influenced by art, sculpture and architecture. We strive to craft new and captivating forms for glyphs and fonts, catering to a diverse range of organizations, products, and publishing needs. We are creating custom typefaces for brand identities, new products or versatile options for editorial and publishing projects. ([Vojtěch Říha](https://www.superiortype.com/about/studio))
+Our work is deeply influenced by art, sculpture and architecture. We strive to craft new and captivating forms for glyphs and fonts, catering to a diverse range of organizations, products, and publishing needs. We are creating custom typefaces for brand identities, new products or versatile options for editorial and publishing projects. ([Superior type](https://www.superiortype.com/about/studio))
 
 This description effectively highlights several strengths like emphasizing inspiration from art, sculpture, and architecture adds depth and shows a commitment to creativity and aesthetics. The focus on crafting "new and captivating forms" suggests a dedication to quality and originality, which is appealing to potential clients.
 
+
+Individual bios
 2.
 
 I like simplicity, as long as it is the right solution. I like complicated artistic expression if it is unique. Less is less, more is more and sometimes any combination will produce the best result. I like to meet people from different backgrounds, I like to work with people with unique skills. (Petr Štěpán)
