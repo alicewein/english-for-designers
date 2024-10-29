@@ -17,6 +17,6 @@ The phrase “any combination will produce the best result” suggests an open-m
 
 3.
 
-I am a graphic designer bred by London, the cafes of Letna and UMPRUM. I love the challenges that come with each new commission or project. I always try to fit the design to the needs of the project, not the project to the needs of the design. (Vítek Škop)https://vitekvitek.com/About-1
+I am a graphic designer bred by London, the cafes of Letna and UMPRUM. I love the challenges that come with each new commission or project. I always try to fit the design to the needs of the project, not the project to the needs of the design. ([Vítek Škop](https://vitekvitek.com/About-1))
 
 The statement is straightforward and to the point, making it easy to understand. Describing yourself as "bred by London, the cafes of Letna, and UMPRUM" adds a personal narrative that connects your identity to specific places, making it more relatable and memorable.
