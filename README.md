@@ -10,7 +10,7 @@
 
 
 
-- Design is not disposable. It is a legacy. Trends come and go, but great design is timeless. We build with longevity in mind—not just in terms of aesthetics but in function, too. The designs we create today should still resonate tomorrow. Good design isn’t about being of the moment; it’s about being lasting, relevant, and adaptable over time. 
+- Trends come and go, but great design is timeless. We build with longevity in mind—not just in terms of aesthetics but in function, too. The designs we create today should still resonate tomorrow. Good design isn’t about being of the moment; it’s about being lasting, relevant, and adaptable over time. 
 
 
 
