@@ -20,7 +20,6 @@
 
 - Good design doesn’t shout for attention—it whispers, gently guiding the viewer without overwhelming them. It knows when to be bold and when to fade into the background. Design should be a subtle presence, enhancing the experience without distracting from it. The best designs are almost invisible in their elegance, unobtrusive in their functionality. It should never feel forced or out of place.
 
-AESTHETICS ARE ESSENTIAL
 
-A design that’s functional but not aesthetically pleasing lacks soul. Aesthetics are essential to creating an emotional connection between the design and its audience. Aesthetics evoke emotion. 
+- A design that’s functional but not aesthetically pleasing lacks soul. Aesthetics are essential to creating an emotional connection between the design and its audience. Aesthetics evoke emotion. 
 
