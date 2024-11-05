@@ -1,4 +1,4 @@
-# english-for-designers
+# design manifesto
  
   
 INNOVATION
