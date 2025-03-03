@@ -22,3 +22,8 @@
 
 
 - A design that’s functional but not aesthetically pleasing lacks soul. Aesthetics are essential to creating an emotional connection between the design and its audience. Aesthetics evoke emotion. 
+first impressions (part one)
+
+https://www.figma.com/deck/1VxMZgqDhzeFe6iuRsUsQm/Untitled?node-id=1-87&t=BETrU3r41px8kN8j-1
+
+in classs feedback - remove about me, in part two remove repetitive sentences, add that your university is in Prag, in part 3 remove words like task, for me etc., click to action
