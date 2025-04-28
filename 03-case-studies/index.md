@@ -1,4 +1,4 @@
-**case study**
+# **Case study**
 
 **Czech Tennis Reimagined**
 
