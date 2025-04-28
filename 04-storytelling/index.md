@@ -1,4 +1,4 @@
-# **My Design Journey: From Collages to Creativity**
+# **Beyond the Margins: A Personal History in Design**
 
 
 ## **Chapter 1: Seeds of Creativity**
